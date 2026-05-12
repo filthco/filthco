@@ -1,16 +1,13 @@
-## Hi there 👋
-
-<!--
-**fffluxarata/fffluxarata** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align=center>
+<img width="736" height="552" alt="@me1guo" src="https://github.com/user-attachments/assets/bb34c7c4-04b8-47f1-afe9-5393fa05be21" />
+<p align=center>
+  creds @me1guo 
+  
+<table align="center">
+  <tr>
+    <td align="center"><ins>c * h</ins> is <sup>encouraged.</sup></td>
+  </tr>
+  <tr>
+    <td align="center">do not copy skins. inspo is okay lol</td>
+  </tr>
+</table>
