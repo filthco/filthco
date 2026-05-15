@@ -8,6 +8,9 @@ how beautiful life can be.
     <td align="center"><ins>c * h</ins> is <sup>encouraged.</sup></td>
   </tr>
   <tr>
-    <td align="center">do not copy skins. inspo is okay lol</td>
+    <td align="center">alt</td>
   </tr>
 </table>
+<div align=center
+[ata](https://theredmeansiloveyou.atabook.org/)
+</div>
