@@ -1,7 +1,7 @@
 <p align=center>
-<img width="736" height="552" alt="@me1guo" src="https://github.com/user-attachments/assets/bb34c7c4-04b8-47f1-afe9-5393fa05be21" />
+<img width="735" height="488" alt="🪷" src="https://github.com/user-attachments/assets/2c3ec974-b9ee-4596-a03f-3f891cccbc07" />
 <p align=center>
-  creds @me1guo on twt
+how beautiful life can be.
   
 <table align="center">
   <tr>
