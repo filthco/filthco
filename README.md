@@ -1,9 +1,9 @@
 <img src="https://64.media.tumblr.com/e022ebd6ec62622c6f49a8cb0ae29a04/f42748b2338cc4ef-54/s400x600/2152fbce989070b08508c0267fb5f6bf36cf278e.pnj" width="250" align="left" hspace="25">
+<img width="20" height="20" alt="tumblr_443eaff1dfe3a40332306b2ea8a971d0_1591be34_75" src="https://github.com/user-attachments/assets/47e33583-d64a-4a02-91b4-7f31703c65d5" /> 𓎟𓎠𓎡𓎠𓎟𓎠୨୧
 
 <br><br><br>
 
 
-<img width="20" height="20" alt="tumblr_443eaff1dfe3a40332306b2ea8a971d0_1591be34_75" src="https://github.com/user-attachments/assets/47e33583-d64a-4a02-91b4-7f31703c65d5" /> 𓎟𓎠𓎡𓎠𓎟𓎠୨୧
 
 
 $\color{#E9E6D5}{\textsf{eww}}\qquad$
@@ -15,9 +15,9 @@ $\color{#db6896}{\textsf{spiders  ֹ ₊ ᢉ𐭩}}$
 
 <br><br>
 
- ㅤㅤ ㅤㅤ ㅤㅤ ㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤ ㅤㅤㅤ[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31vyfgr7cuc5gxncuo7bkscwq25q&cover_image=false&theme=natemoo-re&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=true&bar_color=edcfcd&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31vyfgr7cuc5gxncuo7bkscwq25q&cover_image=false&theme=natemoo-re&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=true&bar_color=edcfcd&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 <a href="https://hits.sh/GitHub.com/filthco/hits/">
- ㅤㅤ ㅤㅤ<img alt="Hits" src="https://hits.sh/GitHub.com/filthco/hits.svg?style=flat-square&label=inkdreams&extraCount=8643&color=db6b98&labelColor=f9efed"/>
+<img alt="Hits" src="https://hits.sh/GitHub.com/filthco/hits.svg?style=flat-square&label=inkdreams&extraCount=8643&color=db6b98&labelColor=f9efed"/>
 <img width="20" height="20" alt="tumblr_cb741395854e789427bd2881132e240a_cb1546a8_75"
 src="https://github.com/user-attachments/assets/edddd194-bc15-46cb-a963-ceca9c80f25f" />
 </a>
