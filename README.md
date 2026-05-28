@@ -18,10 +18,12 @@ $\color{#db6896}{\textsf{spiders  ֹ ₊ ᢉ𐭩}}$
 src="https://github.com/user-attachments/assets/edddd194-bc15-46cb-a963-ceca9c80f25f" />
 </a>
 <p align=left>
-  <img src="https://github.com/user-attachments/assets/a83c16b9-45e6-44fc-8d44-b61c89eba054" width="250" align="left">
+  <img src="https://github.com/user-attachments/assets/a83c16b9-45e6-44fc-8d44-b61c89eba054" width="250" align="left"> 
   
   
- <a href="https://theredmeansiloveyou.atabook.org/">ata</a>
+$\color{#db6896}{\textsf{ֹ⋆.˚}}$ ㅤ<a href="https://theredmeansiloveyou.atabook.org/">ata</a>
+ㅤㅤ
  <a href="https://pronouns.cc/@therealsquIddo/">prns</a>
- <a href="https://docs.google.com/document/d/1KcI7cgzoxUGHaIFz8EWJM9Ge3pikbPKUxvFD5IAEeJg/edit?usp=sharing">docs</a>
+ ㅤㅤ
+ <a href="https://docs.google.com/document/d/1KcI7cgzoxUGHaIFz8EWJM9Ge3pikbPKUxvFD5IAEeJg/edit?usp=sharing">docs</a> $\color{#e9e6d5}{\textsf{⸝⸝ ◝ ⩊ ◜}}$
 </p>
